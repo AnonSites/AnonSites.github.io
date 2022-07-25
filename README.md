@@ -1,5 +1,5 @@
-# SMMZ.ME PANEL OUT SOON
+
 <center> 
-<h1> You welcome </h1>
+<h1> SMMZ.ME PANEL OUT SOON </h1>
 
 </center>
