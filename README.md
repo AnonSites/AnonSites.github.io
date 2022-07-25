@@ -1,1 +1,1 @@
-# AnonSites.github.io
+# SMMZ.ME PANEL OUT SOON
